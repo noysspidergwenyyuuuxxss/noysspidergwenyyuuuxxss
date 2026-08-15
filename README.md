@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=noysjubileeyuuxs&color=blue&style=flat-square"custom="◝(ᵔᗜᵔ)◜" /></p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=noysjubileeyuuxs&color=blue&style=flat-square"alt="profile views" /></p>
 
 " 𝚊𝚗𝚢𝚘𝚗𝚎 𝚌𝚊𝚗 𝚠𝚎𝚊𝚛 𝚝𝚑𝚎 𝚖𝚊𝚜𝚔 "
 
